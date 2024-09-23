@@ -1,1 +1,6 @@
-|| THEW HAJI MOZZ HERE || || The M a j b o o r s - ( G||a||n||d ) Fadu Fighters B) <3 3:) =]]
+#   •═══════•°『THE °-° MOZZ』° •═══════•TRICK<[]
+
+#   •══• °『FACEKBOOK』° •══•
+https://www.facebook.com/thew.m0zZW
+#   •══• °『WHATSAPP』° •══•
+https://wa.me/message/ADLEBCL5WKSGH1
